@@ -1,0 +1,1 @@
+# placa-de-som-tecnico
